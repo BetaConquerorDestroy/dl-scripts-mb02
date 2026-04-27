@@ -1,4 +1,4 @@
-
+professional Mod Menu for deadlock scripts - enemy hero true strike and auto-hero magic resistance is the best deadlock scripts mod menu, featuring enemy hero true strike and
 
 
 
